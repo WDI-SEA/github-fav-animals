@@ -1,2 +1,2 @@
 # Group Favorite Animals
-My favorite animal is the gorilla!
+Actually my fave animal is whales 🐳
